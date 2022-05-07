@@ -4,3 +4,4 @@ India is a Democracy
 india 
 America is a Democracy 
 america
+Pakistan is not a Democracy 
