@@ -7,4 +7,4 @@ america
 Pakistan is not a Democracy 
 I am the one who is noone. 
 
-
+Bhutan too is not a Democracy
